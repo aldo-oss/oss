@@ -1,0 +1,2 @@
+# oss
+olama sakuna salaras
